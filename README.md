@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vidyashreebv11@gmail.com**
 
-- ⚡ Fun fact **I am into cleaning, I clean when I am angry, I clean when I am sad, happy, and what not**
+- ⚡ Fun fact **I'm into cleaning — I clean when I'm angry, when I'm sad, when I'm happy — you name it!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
